@@ -1,1 +1,1 @@
-# gitskills
+if you want to use this faster, only learn more!
